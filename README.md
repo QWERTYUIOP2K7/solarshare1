@@ -1,1 +1,0 @@
-# solarshare1
